@@ -3,3 +3,6 @@ https://www.figma.com/community/file/1534629215524313260/event-management-websit
 
 the reference come from
 https://www.ticket2u.id/event/45221/hololive-indonesia-5th-anniversary-live-chromatic+future
+
+Team 3
+javanic & Taufik
